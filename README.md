@@ -403,6 +403,8 @@ For ultra-fast swap code using off-chain signing and custom sell logic optimizat
 ### Contact Information
 - **Telegram**: [@insionCEO](https://t.me/insionCEO)
 
+### Keyword
+-  Solana Trading Bot | Solana Trading Bot | Solana Trading Bot | Solana Trading Bot | Solana Trading Bot | Solana Trading Bot | Solana Trading Bot | Solana Trading Bot | Solana Trading Bot | Solana Trading Bot | Solana Trading Bot | Solana Trading Bot | Solana Trading Bot | Solana Trading Bot |Solana Trading Bot | Solana Trading Bot | Solana Trading Bot | 
 
 ## 📄 License
 
